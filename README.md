@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm DURGESH PATEL
+# Hi, I'm DURGESH PATEL
 **AIML || MACHINE LEARNING || PYTHON || SQL**
 
 Email Me 👉 ✉️ **dfordurgesh05@gmail.com** For Collaboration/Project or Anything Else. 😊😊
