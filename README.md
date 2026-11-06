@@ -1,5 +1,5 @@
 # Hi, I'm DURGESH PATEL
-**FULL STACK DEVELOPER|| C++/DSA ||REACT.JS || AI-POWERED WEBSITES
+**FULL STACK DEVELOPER|| C++/DSA || MERN || AI-POWERED WEBSITES
 
 Email Me 👉 ✉️ **dfordurgesh05@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
