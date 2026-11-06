@@ -1,12 +1,12 @@
 # Hi, I'm DURGESH PATEL
-**AIML || MACHINE LEARNING || PYTHON || SQL**
+**FULL STACK DEVELOPER|| C++/DSA ||REACT.JS || AI-POWERED WEBSITES
 
 Email Me 👉 ✉️ **dfordurgesh05@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** machine learning projects
+- 🔭 **I’m currently working on:** FULL STACK projects
 - 🌱 **I’m currently learning:** machine learning
 - 💬 **Ask me about:** Collaboration, Tech Support
-- ⚡ **Fun fact:** I Love Tech and Tech Love Me
+- ⚡ **Fun fact:** I Love Tech and Tech LoveS Me
 
 
 ## 🌐 Socials:
